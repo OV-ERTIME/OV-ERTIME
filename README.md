@@ -10,17 +10,25 @@
 <sub> actually dni if ur friends with @ourcrimsonskies and @FrazzledFur LMAOOO RACIST ??????????? OUT OF EVERYTHING I NEVER AND EVER EXPECTED THAT, this really adds the cherry on top of everything and uhmm FFR OR WHATEVER FFA is disbanded? or ? like gone idk, that's that i guess end of a group that died soon glad for that? More and more lying gets added to codys plate too, legit proof of them supporting meowbahh </333, anyways FFR will ??? never be missed lol
 
 
-"rip ffr </3" me and domo out here
+
+
+
+
+
+
+https://github.com/user-attachments/assets/58eb1b77-43e0-4fd3-a39f-63f491e7d40a
+
+
+
+
+
+<sub> FFR was a group that supported and encouraged Cody's yume with gourdy and actions, making cody think its ok do to these things: The Whole GROUP was enablers and extremely unhealthy. Thank god it disbanded, be GLAD it disbanded. Hope they all depart safe and all further away, im just glad i don't have to deal with the bullshit they do to get out of the stuff they caused themselves or set a deeper grave to dig in. "Evan but they want to heal!" Hasn't tried, never bothered, has stated it, has been SHOWN proof of that too, Cody and Vassago are both just terrible people for different reasons at the end of the day no matter how much they try to defend themselves, the proof is shown and overflowing yet never admits it's wrong, nor do they bother too! Hope they both realize that they got themselves trapped in a hole that isn't reachable to the surface lol
 
 [Read Paw's DOC on cody he was an ex-friend of @FrazzledFur / @m4gg0tz now coming out to right
 fully giving the info.](https://docs.google.com/document/d/1hbPU59Z7l1uijMK4FmM77pVJdzCb4hSraEpPtnn1aeQ/edit?tab=t.0)
 
 [Reply doc to Pawlickk's Doc](
 https://docs.google.com/document/d/1ZX5suhAj79GyPM3ksDckrjQQmOOzBgAeR8o4rx47ywI/edit?tab=t.0)
-
-https://github.com/user-attachments/assets/5c7d541b-7cce-407a-8ed9-2484b30927cf
-
-<sub> FFR was a group that supported and encouraged Cody's yume with gourdy and actions, making cody think its ok do to these things: The Whole GROUP was enablers and extremely unhealthy. Thank god it disbanded, be GLAD it disbanded. Hope they all depart safe and all further away, im just glad i don't have to deal with the bullshit they do to get out of the stuff they caused themselves or set a deeper grave to dig in. "Evan but they want to heal!" Hasn't tried, never bothered, has stated it, has been SHOWN proof of that too, Cody and Vassago are both just terrible people for different reasons at the end of the day no matter how much they try to defend themselves, the proof is shown and overflowing yet never admits it's wrong, nor do they bother too! Hope they both realize that they got themselves trapped in a hole that isn't reachable to the surface lol
 
 <div align="center">
   
