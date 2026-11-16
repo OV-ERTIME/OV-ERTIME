@@ -28,6 +28,12 @@
     </td>
   </tr>
   </tr>
+ <!-- Right Column: Small Meme / Sub-image Block -->
+    <td valign="top">
+ ⠀ ⠀ ⠀ ⠀sіgᥒ mᥡ ᥲ𝗍ᥲ ᥲᥒძ s𝗍rᥲᥕ
+
+ ⠀ ⠀ ⠀ ⠀ [atabook](https://soul-vester.atabook.org)   [strawpage](https://soulvesterr.straw.page)
+  
 
   </tr>
 </table>
