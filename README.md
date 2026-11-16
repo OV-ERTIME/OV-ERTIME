@@ -33,7 +33,7 @@
  ⠀ ⠀ ⠀ sіgᥒ mᥡ ᥲ𝗍ᥲ ᥲᥒძ s𝗍rᥲᥕ
 
  ⠀ ⠀ ⠀ [atabook](https://fritz.atabook.org)   [strawpage](https://soulvesterr.straw.page) 🔦
-  
+                                               :trollface:
 
   </tr>
 </table>
