@@ -30,9 +30,9 @@
   </tr>
  <!-- Right Column: Small Meme / Sub-image Block -->
     <td valign="top">
- ⠀ ⠀ ⠀ ⠀sіgᥒ mᥡ ᥲ𝗍ᥲ ᥲᥒძ s𝗍rᥲᥕ
+ ⠀ ⠀ ⠀ sіgᥒ mᥡ ᥲ𝗍ᥲ ᥲᥒძ s𝗍rᥲᥕ
 
- ⠀ ⠀ ⠀ ⠀ [atabook](https://fritz.atabook.org)   [strawpage](https://soulvesterr.straw.page)
+ ⠀ ⠀ ⠀ [atabook](https://fritz.atabook.org)   [strawpage](https://soulvesterr.straw.page) 🔦
   
 
   </tr>
