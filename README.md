@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://file.garden/asK8R4fOscgWTCmj/Untitled14_20261115211216.png"  width="450"> <img src="https://file.garden/asK8R4fOscgWTCmj/Untitled14_20261115211216.png"  width="450"> 
+<img src="https://file.garden/asK8R4fOscgWTCmj/Untitled14_20261115211216.png"  width="300"> <img src="https://file.garden/asK8R4fOscgWTCmj/Untitled14_20261115211216.png"  width="300"> 
 
 <p align="center">
 <table>
