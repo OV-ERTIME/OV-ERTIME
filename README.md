@@ -17,7 +17,7 @@
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ᥱ᥎ᥲᥒ ⠀ ⠀ ᥆r ⠀ ⠀ sᥲm⠀ ⠀ 15 ᥡr ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀frі𝗍z smі𝗍һ (𝖿ᥒᥲ𝖿ᑲ3) ᥡᥙmᥱsһі⍴⍴ᥱr (ᥴᥲᥒძᥡsһᥲrіᥒg)
   </tr>
     <!-- Right Column: Bottom Status Line --> <td valign="top">
- <p align="center">     <img src="https://file.garden/asK8R4fOscgWTCmj/%EC%B4%AC%EC%98%81_20261117_223439.png" width=100/> 
+ <p align="center">     <img src="https://file.garden/asK8R4fOscgWTCmj/%EC%B4%AC%EC%98%81_20261117_223439.png" width=140/> 
    
   <p align="center"> <sub>made by me!!
 
