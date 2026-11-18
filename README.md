@@ -17,7 +17,9 @@
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ᥱ᥎ᥲᥒ ⠀ ⠀ ᥆r ⠀ ⠀ sᥲm⠀ ⠀ 15 ᥡr ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀frі𝗍z smі𝗍һ (𝖿ᥒᥲ𝖿ᑲ3) ᥡᥙmᥱsһі⍴⍴ᥱr (ᥴᥲᥒძᥡsһᥲrіᥒg)
   </tr>
     <!-- Right Column: Bottom Status Line --> <td valign="top">
- <p align="center">     <img src="https://64.media.tumblr.com/764083b3949bc4f271b8377507c0cdbe/ca15a598d95b2553-7e/s100x200/a3311dc4d86346194d52b0b9edce312c21765cdd.pnj"/> <img src="https://64.media.tumblr.com/44fa785d914d95265f59fcb3deb92cd6/ca15a598d95b2553-1a/s100x200/e7bc1bba1e956ed582b2f5bb211a20eccd5eb63f.pnj"/> <img src="https://64.media.tumblr.com/2a85ddf878f8162ea919ad08bfdbb7b1/ca15a598d95b2553-81/s100x200/b7a9a39d02a390ec3bf4317a73d6a53fd6c45038.pnj"/> 
+ <p align="center">     <img src="https://file.garden/asK8R4fOscgWTCmj/%EC%B4%AC%EC%98%81_20261117_223439.png" width=100/> 
+   
+  <p align="center"> <sub>made by me!!
 
   <details>
   <summary><p align="center"> іᥒ𝖿᥆ ⠀ ⠀ + ⠀ ⠀ ძᥒі </summary> <img src="https://64.media.tumblr.com/78adf95862bfb39a12b0b34caa7fca4a/1d631a952667d67b-62/s640x960/e63c3c91c19ed97af6bbae4b8e98131e71bb1f1f.gif"/>
