@@ -19,7 +19,7 @@
     <!-- Right Column: Bottom Status Line --> <td valign="top">
  <p align="center">     <img src="https://file.garden/asK8R4fOscgWTCmj/%EC%B4%AC%EC%98%81_20261117_223439.png" width=140/> <img src="https://file.garden/asK8R4fOscgWTCmj/jeremy" width=140>
    
-  <p align="center"> <sub>made by me!!
+  <p align="center"> <sub> me and gordon in fb3 ;-; (made by me!!)
 
   <details>
   <summary><p align="center"> іᥒ𝖿᥆ ⠀ ⠀ + ⠀ ⠀ ძᥒі </summary> <img src="https://64.media.tumblr.com/78adf95862bfb39a12b0b34caa7fca4a/1d631a952667d67b-62/s640x960/e63c3c91c19ed97af6bbae4b8e98131e71bb1f1f.gif"/>
